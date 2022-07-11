@@ -1,1 +1,1 @@
-Any questions,eamil me,address:610465698@qq.com;jiangtao.i18n@qq.com
+Any questions,eamil me,address:jiangtao.i18n@qq.com
